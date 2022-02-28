@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @hrithwikk
+- 👋 Hi, I’m @hrithwikk, adding projects that i have done by myself and a little bit of help from my old friend, google :)
